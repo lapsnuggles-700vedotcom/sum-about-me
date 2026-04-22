@@ -22,6 +22,6 @@
 
 : ̗̀➛ thứ chín : Tui khá khắt khe về ship sủng, nên đây là một số cái NOTP to bự của tui : AOV: #1: Bijan x Zanis( triệu vân ). #2 : BriZat. DRV (v3) : #1: Sai////matsu ( nói chung là các cp ship đến thằng shuichi trừ Kokichi thì tui ghét hết). #2: Ou///////meno ₍ ˃ ⤙ ˂ ₎ა
 
-჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻
+჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻
 
 Hết rùi ọ, nếu có gì tui sẽ cập nhật thêm 𝄞

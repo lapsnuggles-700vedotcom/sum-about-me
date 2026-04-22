@@ -29,7 +29,7 @@
 liên quân : .4everremains'
 skullgirls ( đã bỏ game ) : Hij. Kya
 
-p/s: ở dưới còn có link facebook tui nữa á 𐙚 ˚ ⋆｡˚ ᡣ𐭩
+p/s: ở trên có link facebook tui nữa á 𐙚 ˚ ⋆｡˚ ᡣ𐭩
 ჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻
 
 Hết rùi ọ, nếu có gì tui sẽ cập nhật thêm 𝄞

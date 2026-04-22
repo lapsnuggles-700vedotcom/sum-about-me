@@ -2,7 +2,7 @@
 <p align="center">
   <img src="https://i.pinimg.com/originals/ea/40/57/ea40573f36cd559b03a2f99c11dff1e0.gif" width="600"/>
 </p>
-⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔   ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ 
+⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔   ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔
 
 : ̗̀➛ đầu tiên : bạn có thể gọi tui là Lam/ Camel. Nếu ta đủ thân thì bạn chế biệt danh tui cũng được nè ٩(ˊᗜˋ*)و ♡
 
@@ -22,6 +22,6 @@
 
 : ̗̀➛ thứ chín : Tui khá khắt khe về ship sủng, nên đây là một số cái NOTP to bự của tui : AOV: #1: Bijan x Zanis( triệu vân ). #2 : BriZat. DRV (v3) : #1: Sai////matsu ( nói chung là các cp ship đến thằng shuichi trừ Kokichi thì tui ghét hết). #2: Ou///////meno ₍ ˃ ⤙ ˂ ₎ა
 
-჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻
+჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻჻
 
 Hết rùi ọ, nếu có gì tui sẽ cập nhật thêm 𝄞

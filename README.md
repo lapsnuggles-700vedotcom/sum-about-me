@@ -2,6 +2,9 @@
 <p align="center">
   <img src="https://i.pinimg.com/originals/ea/40/57/ea40573f36cd559b03a2f99c11dff1e0.gif" width="600"/>
 </p>
+<p align="center">
+  <a href="https://www.facebook.com/HijwKya/">facebook</a>
+</p>
 ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔   ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔
 
 : ̗̀➛ đầu tiên : bạn có thể gọi tui là Lam/ Camel. Nếu ta đủ thân thì bạn chế biệt danh tui cũng được nè ٩(ˊᗜˋ*)و ♡

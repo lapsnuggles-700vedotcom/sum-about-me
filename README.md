@@ -7,7 +7,7 @@
 </p>
 ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔  ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔ ⏔⏔⏔
 
-: ̗̀➛ đầu tiên : bạn có thể gọi tui là Lam/ Camel. Nếu ta đủ thân thì bạn chế biệt danh tui cũng được nè ٩(ˊᗜˋ*)و ♡
+: ̗̀➛ đầu tiên : bạn có thể gọi tui là cumi. Nếu ta đủ thân thì bạn chế biệt danh tui cũng được nè ٩(ˊᗜˋ*)و ♡
 
 : ̗̀➛ thứ 2 : khi mới gặp nhau, tui có thể hơi nhát người, bí ngôn. Nhưng nếu về sau ta thân hơn thì tui có thể sẽ vô cùng bố láo joke mất dậy ợ (๑ᵔ⤙ᵔ๑)
 
